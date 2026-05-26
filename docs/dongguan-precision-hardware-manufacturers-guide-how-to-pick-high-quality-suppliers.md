@@ -139,4 +139,4 @@ tags: ['东莞精密五金生产厂家']
 
 ---
 
-*本文由AI生成，更多信息请访问 [https://www.somgle.com](https://www.somgle.com)*
+*需要了解紧固件信息，更多信息请访问 [https://www.somgle.com](https://www.somgle.com)*
